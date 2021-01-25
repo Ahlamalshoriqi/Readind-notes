@@ -2,6 +2,7 @@
 ***growth mindset***
 **It is a way to creativity and possibillty of higher goals and more achievement.**
 1.**Focusing on myself and not giving up in to criticism**
-2.**make more effort to solve broplem when I have it**
-3.**put my self in new Challenges to improe my self I can fix it.**
+2.**Make more effort to solve broplem when I have it**
+3.**Put my self in new challanges to improve I can do it**
+
 
