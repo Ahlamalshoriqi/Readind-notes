@@ -1,7 +1,8 @@
 # Readind-notes
 *** Growth Mindset***
-https://3kllhk1ibq34qk6sp3bhtox1-wpengine.netdna-ssl.com/wp-content/uploads/2015/11/growth-mindset.png
+
 **It is a way to creativity and possibillty of higher goals and more achievement.**
+
 
 1.**Focusing on myself and not giving up in to criticism**
 
@@ -9,5 +10,6 @@ https://3kllhk1ibq34qk6sp3bhtox1-wpengine.netdna-ssl.com/wp-content/uploads/2015
 
 3.**Put my self in new challanges to improve I can do it**
 
-
+***AND INTRODUSING MY SELF***
+**I am ahlam alshriqi and I pharmacist, I would like to be software developer and I do not have experince in programming,I try to learn more about it.
 
